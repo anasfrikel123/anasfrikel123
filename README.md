@@ -9,4 +9,4 @@ Paid **client work** only. Nothing personal for sale.
 - FR/EN business copy — **$80**
 - Speed + SEO — **$90**
 
-PayPal 50% to start: `afrikel173@gmail.com`
+PayPal 50% to start: `mohamedanasfrikel@gmail.com`
